@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @AzuuraJ
+- 👋 Hi, I’m me
 - 👀 I’m interested in ... Learning!
 - 🌱 I’m currently learning ... the basics
 - 💞️ I’m looking to collaborate on ...
